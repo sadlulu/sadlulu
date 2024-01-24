@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **s73luo@uwaterloo.ca**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
